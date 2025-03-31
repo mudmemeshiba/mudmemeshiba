@@ -1,11 +1,11 @@
 ## Zapraszam :D
 - My nickname is `Mudmee`. Pronounced as `mát.mì`ː
-- My preferred pronouns are `they/them`
-- I like JPOP music very much!! (POV: น้ำเสียงพี่ต่อไกลบ้าน)
+- My preferred pronouns are `they/them` but  `she/her` are fine
+- I like JPOP music very much!! 
 - I'm also keen on learning natural languages: 日本語, Polski, Español, etc. ⸜( ^ ᵕ ^ )⸝♡
 
 ## Currently I'm
-- a 1st year computer engineering student at Kasetsart University, Bangkok
+- a computer engineering student at Kasetsart University, Bangkok
 - a part time piano teacher and a chorus kid 🎹
 > I'm interested in integrating music, languages and computer science together
 
